@@ -1,2 +1,0 @@
-# biokusana
-bi'oku'sana
